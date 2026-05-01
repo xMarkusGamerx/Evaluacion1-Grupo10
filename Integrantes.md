@@ -1,3 +1,3 @@
 Manuel Ruiz 
 Javier Tovar
-Wilkeer Pardo Lic
+Wilker Pardo Lic
