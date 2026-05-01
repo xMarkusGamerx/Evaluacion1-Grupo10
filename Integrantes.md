@@ -1,2 +1,2 @@
 Manuel Ruiz 
-Javier Tovar Access
+Javier Tovar
